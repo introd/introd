@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @introd
+- 👀 I’m interested in modding
+- 🌱 I’m currently learning selfmading
+- 💞️ I’m looking to collaborate on nothing
